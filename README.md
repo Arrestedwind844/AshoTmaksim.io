@@ -1,1 +1,0 @@
-# AshoTmaksim.io
